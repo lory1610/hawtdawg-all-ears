@@ -1,3 +1,1 @@
-# FAQ
-
-## How many potos can I post?
+# Where do I list my favorite treats?
